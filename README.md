@@ -6,7 +6,7 @@
 - 💞️ I’m Looking for my Next Challenge in the Cloud Field-Specializing Customer Support and Consulting Services.
 - ~Please Don't Hesitate to Contact me if you think you have a Job Offer that could Suit me.
 - 📫 How to Reach me: *Email: jwana.de.7@gmail.com
--                      *Phone-Number: 050-8458200 
+-                        *Phone-Number: 050-8458200 
 
 <!---
 Jwanade/Jwanade is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
