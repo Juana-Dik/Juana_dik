@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jwana Deek
+- 👋 Hi, I’m Juana Dik
 - ✨Graduated of AWS Re/Start Bootcamp-Certified Amazon Cloud Practitioner.
 - ✨I have completed BA in Economics & Business Administration-University of Haifa.
 - 👀 I’m Interested in Reading, Writing, Learning New Skills, Expanding my Friendzone.
